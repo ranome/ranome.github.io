@@ -1,1 +1,0 @@
-# ranome.github.io
